@@ -1,0 +1,2 @@
+# hiking
+My Favorite Hikes
